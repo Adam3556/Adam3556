@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Adam3556
+- 👀 I’m interested in Hacking
+- 🌱 I’m currently learning Hacking
